@@ -1,4 +1,5 @@
 AIP - Kecerdasan Artificial pada Bisnis (KAB)
+Proposal Ai Solution | Palugada Ai
 
 Oleh
 
